@@ -6,7 +6,7 @@ simples para quem quizer fazer contribuições no código e melhorar o exemplo a
 
 vou aprendendo e repassando conhecimento.
 
-"Conhecimento vale mais do que Ouro.
+"Conhecimento vale mais do que Ouro".
 
 Para quem quizer falar comigo segue.
 
